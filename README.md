@@ -1,0 +1,3 @@
+- 👋 Hi, I’m qwelst09
+- 👀 I’m interested in PC program and games
+- ⚡ Fun fact: i'm a god?
